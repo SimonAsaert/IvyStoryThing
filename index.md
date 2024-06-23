@@ -10,11 +10,34 @@ And thus, Poor Thing was created fully formed. Normally, such an event would be 
 
 Poor Thing instead had to figure a way through this world unfocused and unguided.
 
-### Gonna Take that Tart, Thank You
+### Gonna Go on a Meander
 
-<!--### Give
+<!-- 
+- Now created, time to... Figure things out
+- Ended up wandering in a town
+- Saw mystical creatures around every corner, and people watching them
+-->
 
-### You
+### Give me love, give me care, give me guidance
 
-### Up-->
+<!--
+- Seeing those distrustful folk around the corners of the town, ran and hid
+- Ended up hiding amongst the trash of a caring one
+- 
+-->
+### You must let me go
 
+<!--
+- Eventually 'out-grew' their spot
+- Decided to go wandering again
+- 
+-->
+
+### Up We Go on Adventure
+
+<!--
+- Ended up in a whirlwind
+- Drawn up higher and higher
+- Suddenly the forces of nature tore apart
+- Poor thing yeeted through a portal and into the Feywild
+-->
